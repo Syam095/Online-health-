@@ -1,2 +1,2 @@
 # Online-health-
-Project Name:- Online Health and members:- Syamchand Chilaka, Venu Kumar Gollapudi
+Project Name:- Online Health and wellness community members:- Syamchand Chilaka, Venu Kumar Gollapudi
